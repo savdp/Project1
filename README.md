@@ -1,4 +1,4 @@
-# Project1
+# Procrastination
 The title of the project
 
 # About
