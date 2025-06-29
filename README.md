@@ -1,4 +1,4 @@
-# Procrastination
+# How procrastination impacts our mental health
 The title of the project
 
 # About
