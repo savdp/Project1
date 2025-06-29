@@ -1,4 +1,4 @@
-# How procrastination impacts our mental health
+# If not now, when?
 The title of the project
 
 # About
